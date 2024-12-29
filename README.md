@@ -1,6 +1,6 @@
-# Aladdin机场官网地址
+# Aladdin 阿拉丁机场官网地址
 
-最新地址：[aladingnet.com](https://www.aladingnet.com/register?aff=AOZUW3owvM)
+最新地址：[aladingnet.com](https://www.avatargpt.xyz/register?aff=RrCpLEmlTA)
 
 ## Aladdin介绍
 
